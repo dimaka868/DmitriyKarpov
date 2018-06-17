@@ -1,2 +1,0 @@
-# DmitriyKarpov
-DZ
